@@ -76,5 +76,6 @@ TODOs
 
 Author
 Designed by Patricia Tirado
-https://www.linkedin.com/in/patriciatirado29a/
+Follow me on LinkedIn: 
+www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=patriciatirado29a
 'forging better outcomes with uncommon sense'.
